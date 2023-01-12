@@ -151,6 +151,7 @@ Join our growing community!
 
 ### HR / Staffing
 - [Symmetrics](https://www.symmetrics.fyi)
+- [Swile](https://www.swile.co/) [@PaoloTerzi]
 
 ### News
 - [Prensa Iberica](https://www.prensaiberica.es/) [@zamar-roura]
